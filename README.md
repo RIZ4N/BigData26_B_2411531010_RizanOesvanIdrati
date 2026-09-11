@@ -1,1 +1,0 @@
-# BigData26_B_2411531010_RizanOesvanIdrati
